@@ -1,3 +1,3 @@
-Hi, I'm Mack!
+Hi, I'm Mack. 
 
-I'm here to learn. :D
+Here to learn and improve!
